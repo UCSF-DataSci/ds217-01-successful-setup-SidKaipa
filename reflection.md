@@ -17,6 +17,7 @@ I am quite nervous about the amount of coding or how in depth the coding aspect 
 ## 4. Share something you enjoy!
 
 https://www.imdb.com/chart/top/
+
 I am really into movies! I have worked my way through all the classics and various decades, and am now working my way through the IMDB top 250 list. I have seen over 1000 movies, and can easily talk anyone's ears off about the magic of movies.
 ---
 
